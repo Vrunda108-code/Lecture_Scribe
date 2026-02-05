@@ -1,1 +1,1 @@
-# Lecture_Scribe-
+# Lecture_Scribe
